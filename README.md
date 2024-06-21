@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding and progamming
 - 🌱 I’m currently learning ... python
 - 💞️ I’m looking to collaborate on ... open projects to better my skill
-- 📫 How to reach me ... discord 
+- 📫 How to reach me ... discord Axxxadsburner
 - 😄 Pronouns: ... he him
 - ⚡ Fun fact: ... 
 
